@@ -1,3 +1,4 @@
 # zono
 oozonorei
 kawaii
+kagoshima
